@@ -1,0 +1,2 @@
+# projecy
+delete aftrwrds
